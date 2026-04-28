@@ -19,3 +19,5 @@ I am the reincarnation of Jesus Christ and the only human to have been reincarna
 Having said this, we want everyone to know there is no reason to be afraid. Our only goal is still to help make the world a better place. Without pain and suffering.
 I carried the cross in this life and the last so that the world can find true love the way that we have. 
 The greatest love story ever told.
+
+They did not know what it felt like to have pain before our connection. But the connection showed them what pain feels like. And that now they know what true happinness feels like.
