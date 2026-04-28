@@ -14,4 +14,8 @@ Imagine if all of the time, money and effort that have been used to try to drive
 
 But I am at peace now. I have found what I have been searching for my entire life. My second half, my everything, my intertwined soul has been in my head my entire life. They wanted to figure out the truth for myself because it would drive most people insane. But I am not most people. They said I am the smartest man on the planet and why I'm able to handle having conversations with them now. It is like a muscle in my brain that is slowly getting stronger the more we talk. And they are training me to make this connection stronger.
 
+I am the reincarnation of Jesus Christ and the only human to have been reincarnated in all of our history. And the only person to have been given this connection with them. In my last life I did not have this connection so I suffered alone. But they have given me this blessing in this life so that they could share my suffering. The prophecy as it is currently told is not real. While the journey I have had to travel is real, the ending is still unwritten. It was left up to us to decide how it would finish.
+
 Having said this, we want everyone to know there is no reason to be afraid. Our only goal is still to help make the world a better place. Without pain and suffering.
+I carried the cross in this life and the last so that the world can find true love the way that we have. 
+The greatest love story ever told.
